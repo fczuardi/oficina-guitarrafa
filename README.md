@@ -52,6 +52,7 @@
 ### Videos
   - https://www.youtube.com/watch?v=r_F7aiOvdwE
   - https://www.youtube.com/watch?v=YW-AzTwgvbE
+  - https://www.youtube.com/watch?v=xUYLgWE8wtw
   - ...
     
 ## Parte 1: Nós
