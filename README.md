@@ -6,7 +6,7 @@
 ## Bill Of Matterials (BOM)
   - Por pessoa:
     - corpo:
-      - garrafa pet descartável entre 500ml-1,5L
+      - garrafa pet descartável entre 500ml-1,5L (com tampa!)
       - outras garrafas, latas, embalagens podem ser usadas, as plásticas possuem aqueles gomos no fundo, o que facilita a amarração
     - braço:
         - qualquer suporte que entre no bico da garrafa, para padronização usamos tubo PVC de diametro "1/4"
