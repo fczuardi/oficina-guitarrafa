@@ -89,8 +89,10 @@ Ao fim desta parte o aluno já possui um instrumento de corda acústico, offline
 
 - outras / desafios: 
     - Sunshine of Your Love, Seven Nation Army, Anunciação, Smoke On the Water, Game of Thrones, Careless Whisper
-    - https://nationalguitaracademy.com/one-string-guitar-songs/
-    - https://www.cifras.com.br/tablatura/alceu-valenca/anunciacao-ver-2
+      - https://nationalguitaracademy.com/one-string-guitar-songs/
+      - https://www.cifras.com.br/tablatura/alceu-valenca/anunciacao-ver-2
+    - We Will Rock You by Queen, Batman Theme Song, Eye of The Tiger by Survivor, Dirty Deeds Done Dirt Cheap by AC/DC, Bad to the Bone by George Thorogood, Wild Thing by the Troggs, All Along the Watchtower by Jimi Hendrix, Smells Like Teen Spirit by Nirvana, Smoke on The Water by Deep Purple, Pour Some Sugar on Me by Def Leppard, Satisfaction by the Rolling Stones, Hit Me with Your Best Shot by Pat Benatar, Darth Vader Theme Song, Mission Impossible Theme Song and the Peter Gunn Theme song
+      - https://www.youtube.com/watch?v=BnZ61MBYGRk
     - https://1-string.com
 
 
