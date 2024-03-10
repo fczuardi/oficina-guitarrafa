@@ -1,5 +1,5 @@
 ## Escova de silicone:
-- https://www.google.com/search?q=escova+sanitaria+silicone&client=firefox-b-d&sca_esv=26a7465d6347b026&tbm=shop&ei=uMntZbnPB5fN1sQPsMSlsAs&ved=0ahUKEwi5i_fZ-emEAxWXppUCHTBiCbYQ4dUDCAg&uact=5&oq=escova+sanitaria+silicone&gs_lp=Egtwcm9kdWN0cy1jYyIZZXNjb3ZhIHNhbml0YXJpYSBzaWxpY29uZTIFEAAYgAQyBhAAGBYYHkjoGFC2CVjjFXAAeACQAQCYAfkBoAGtDaoBBTAuNy4zuAEDyAEA-AEBmAIKoALNDcICBhAAGAcYHsICBBAAGB6YAwCIBgGSBwUwLjcuM6AHoRk&sclient=products-cc
+- [Google Shopping](https://www.google.com/search?q=escova+sanitaria+silicone&client=firefox-b-d&sca_esv=26a7465d6347b026&tbm=shop&ei=uMntZbnPB5fN1sQPsMSlsAs&ved=0ahUKEwi5i_fZ-emEAxWXppUCHTBiCbYQ4dUDCAg&uact=5&oq=escova+sanitaria+silicone&gs_lp=Egtwcm9kdWN0cy1jYyIZZXNjb3ZhIHNhbml0YXJpYSBzaWxpY29uZTIFEAAYgAQyBhAAGBYYHkjoGFC2CVjjFXAAeACQAQCYAfkBoAGtDaoBBTAuNy4zuAEDyAEA-AEBmAIKoALNDcICBhAAGAcYHsICBBAAGB6YAwCIBgGSBwUwLjcuM6AHoRk&sclient=products-cc)
 
 ### Taut Line Hitch / Prussik
 - NightHawkInLight: 3:01 of https://youtu.be/S8UT1iEj_p4?si=n7vU2YaniyTynTSV&t=181
