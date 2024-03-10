@@ -7,4 +7,5 @@
 
 ### Sheet bend / Double Sheet Bend / Nó Allbright
 - NightHawkInLight: 5:05 of https://youtu.be/S8UT1iEj_p4?si=3jyZlGsT8st_tpNz&t=305
+  - clip https://youtube.com/clip/Ugkx8v-VF8BWu457dUfFTfcpbzdgrovTGWn5?si=0tCljZvH5ApNL8Kc  
 - Manual do Mundo: 11:15 of https://youtu.be/3NeCRUS20is?si=HKSLUGlvrPieCgn6&t=675
